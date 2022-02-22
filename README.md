@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ShenaSuzanne
 - 👀 I’m interested in ... writing
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ...video production after 20 years of detailed video editing
 - 💞️ I’m looking to collaborate on ... fiction writing projects
 - 📫 How to reach me ...
 
